@@ -1,0 +1,2 @@
+# infojaya
+safelink blog infojayacom
